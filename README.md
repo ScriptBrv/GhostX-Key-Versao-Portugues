@@ -1,0 +1,1 @@
+# GhostX-Key-Versao-Portugues
